@@ -1,2 +1,2 @@
-# Fachhandel-f-r-Trockenbau-Maler-Baustoffe-
+# Fachhandel- Trockenbau-Maler-Baustoffe
 Onlineshop für Trockenbau- Maler&amp; Baustoffe 
